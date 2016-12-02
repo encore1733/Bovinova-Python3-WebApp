@@ -1,1 +1,2 @@
 Hold fast to dreams
+for if dreams die life is a broken-winged bird
